@@ -1,4 +1,4 @@
-- 👋 <!---Hi, I’m @MuhhammadIsmail--->
+- 👋 Hi, I’m @MuhhammadIsmail
 - 👀 I’m interested in Network Marketing
 - 🌱 I’m currently work as an IT Project Coordinator at Patel Hospital
 - 💞️ I’m looking to work network marketing
